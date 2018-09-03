@@ -1,3 +1,3 @@
 # first
 
-ちょめ
+chom
